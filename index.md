@@ -1,6 +1,6 @@
 ## 2022春夏季扫文
 [回到主页](https://boheme130.github.io/Fiction.git.io/)
-![avatar](https://i.ibb.co/wdtt2Xm/UA3-UJRVHWAI6-XKFHL5-C53-TPTMQ-2.jpg)
+![avatar](https://media.newyorker.com/photos/5ed023b0fdf789560f9d19bb/master/pass/TNY-SummerReading2020.jpg)
 <br>
 <br>
 
