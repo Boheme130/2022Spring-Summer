@@ -27,8 +27,8 @@
 <br>
 
 ## The Summer Mask (by Karen Lowachee)
-`	阅读难度：★
-	剧情评分：★★★`
+```	阅读难度：★
+	剧情评分：★★★```
 ⭕️关键词：面具制造师 & 残疾毁容退伍士兵 <br>
 面具制造师David为因战争毁容+残疾的士兵Matthew制造面具，复刻他毁容前的样子。在这个过程中David慢慢爱上了Matthew，并最终用了极大的代价换取了Matthew重见光明。
 
